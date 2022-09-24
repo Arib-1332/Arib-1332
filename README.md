@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Arib-1332
 - 👀 I’m interested in .Knowing .about Artificial intelligence and Machine learning.
 - 🌱 I’m currently learning .Degree in engeneering..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on . updates on Artificial intelligence..
 - 📫 How to reach me . arrii1332@gmail.com..
 
 <!---
